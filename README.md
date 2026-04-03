@@ -70,9 +70,9 @@ Whether you're a beginner needing help or a business looking for custom solution
 
 Want to work together or need help?
 
-* 📧 Email: *your-email-here*
-* 💬 Discord: *your-discord-here*
-* 🌐 GitHub: https://github.com/yourusername
+* 📧 Email: bennythekiller12@gmail.com
+* 💬 Discord: serotonin_sernin
+* 🌐 GitHub: https://github.com/Nevermind-sero
 
 ---
 
